@@ -1,1 +1,1 @@
-"Alejandro Ib ¤ez Capel" 
+"Alejandro Ibanez Capel" 
